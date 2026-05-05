@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **chiragsingh9389755@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1p-NB1c9WundPfJdUIByk6WCoCeI_En_H/view?usp=drivesdk](https://drive.google.com/file/d/1p-NB1c9WundPfJdUIByk6WCoCeI_En_H/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1p-NB1c9WundPfJdUIByk6WCoCeI_En_H/view?usp=drivesdk](https://drive.google.com/file/d/1DbTNWKn_iV9wOxrMN2UEJUL--uLyONbS/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
